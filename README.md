@@ -4,6 +4,6 @@
 
 https://annabella.jvbarbosadev.repl.co/contato.html
 
-USANDO SOMENTE ( HTML ).
+👨🏼‍💻 USANDO SOMENTE ( HTML ). 👨🏼‍💻
 
-Quando estava aprendedo html a 1 mês e meio atrâs.
+👨🏼‍💻 Quando estava aprendedo html a 1 mês e meio atrâs. 👨🏼‍💻
